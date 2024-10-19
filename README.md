@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @pantherXop
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning html, css and java scipt
+-  You can reach me on discord my username is panther2009
